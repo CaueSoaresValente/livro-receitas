@@ -8,4 +8,4 @@ Ingredientes
 1 envelope de Tempero MAGGI® Meu Segredo Frango
 2 colheres (sopa) de ketchup
 2 colheres (sopa) de mostarda
-1 caixinha de NESTLÉ® Creme de Leite.
+1 caixinha de NESTLÉ® Creme de Leite..
